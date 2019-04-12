@@ -1,4 +1,4 @@
-# Welcome to my blog
+# Greetings Comrade
 
 -[ ] First Things First:dizzy:
 I'm glad you are here. I plan to talk about ...:+1:
